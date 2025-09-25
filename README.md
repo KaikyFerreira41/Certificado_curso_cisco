@@ -19,7 +19,7 @@
 ### 👔 Docentes e Orientação
 
 * **Orientador(a):** [FRANCISMAR ALVES MARTINS JUNIOR](https://www.linkedin.com/in/francismar-alves-martins-junior-8a320b90/)
-* **Coordenador(a):** [GUILHERME NOGUEIRA]()
+* **Coordenador(a):** GUILHERME NOGUEIRA
 
 ### 📄 Identificação
 
